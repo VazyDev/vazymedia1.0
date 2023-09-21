@@ -1,0 +1,1 @@
+# vazymedia1.0
